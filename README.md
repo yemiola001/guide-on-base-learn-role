@@ -1,3 +1,3 @@
 # guide-on-base-learn-role 
-its really fub to be here
+oce i remenber where i am coming from
 everyday is a new day to giv thanks to our creators
